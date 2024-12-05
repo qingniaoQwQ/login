@@ -1,1 +1,1 @@
-EULA by [VC]VapingCation服务器®
+Login by [VC]VapingCation服务器®
